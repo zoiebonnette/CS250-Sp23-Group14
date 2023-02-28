@@ -2,3 +2,4 @@
 
 Zayd Dixon,
 Zoie Bonnette,
+Alexandria Delgado
